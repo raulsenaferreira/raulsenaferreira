@@ -1,4 +1,4 @@
-### PhD researcher in Machine Learning and Safey ✨
+### PhD researcher in Machine Learning and Safe AI ✨
 
 http://www.raulferreira.com.br/
 
