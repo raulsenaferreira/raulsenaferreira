@@ -1,4 +1,4 @@
-### PhD researcher in Machine Learning and Safe AI ✨
+### PhD researcher in Computer vision and Safe AI ✨
 
 http://www.raulferreira.com.br/
 
