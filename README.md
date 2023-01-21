@@ -1,4 +1,4 @@
-### PhD researcher in Computer vision and Safe AI ✨
+### PhD researcher in Computer vision, Safe AI, Data Science for Good ✨
 
 [https://raulsenaferreira.github.io/](https://raulsenaferreira.github.io/)
 
